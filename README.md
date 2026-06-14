@@ -1,6 +1,8 @@
 
 
-<img width="600" height="600" alt="Untitled11_20260613145528" src="https://github.com/user-attachments/assets/e4b032cd-53c0-4567-bdbf-3f5707a676fa" />
+
+<img width="600" height="600" alt="Untitled11_20260614093752" src="https://github.com/user-attachments/assets/729e5554-8acb-4cc0-9d39-83385f8b045e" />
+
 
 
 ୨୧　bianca / kanboo     

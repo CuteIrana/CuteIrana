@@ -1,6 +1,7 @@
 
 
-<img width="676" height="495" alt="Untitled9_20260606210623" src="https://github.com/user-attachments/assets/fa572d55-52ab-40c7-877b-eb5761757d1b" />
+<img width="600" height="600" alt="Untitled11_20260613145528" src="https://github.com/user-attachments/assets/e4b032cd-53c0-4567-bdbf-3f5707a676fa" />
+
 
 ୨୧　bianca / kanboo     
  ![tumblr_7b40b1d5b727290a55a3386409f6f01e_f5939bed_75](https://github.com/user-attachments/assets/4307dc67-0508-4100-a59e-9f621e858efa)
